@@ -1,2 +1,0 @@
-# ALL-RED
-tugas sic
